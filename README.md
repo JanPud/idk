@@ -1,2 +1,2 @@
 # idk
-Just another repository or somth, i dunno
+Just another repository or smth, i dunno
